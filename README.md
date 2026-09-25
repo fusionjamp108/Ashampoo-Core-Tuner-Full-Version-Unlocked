@@ -1,0 +1,1 @@
+# Ashampoo-Core-Tuner-Full-Version-Unlocked
